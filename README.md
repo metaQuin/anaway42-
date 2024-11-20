@@ -1,1 +1,2 @@
 # anaway42-
+https://github.com/github/docs/actions/workflows/content-lint-markdown.yml/badge.svggoogle_commitment_secure_by_design_overview.pdf))[]([google_commitment_secure_by_design_overview.pdf](https://github.com/user-attachments/files/17832626/google_commitment_secure_by_design_overview.pdf))[google_commitment_secure_by_design_overview.pdf](https://github.com/user-attachments/files/17832626/google_commitment_secure_by_design_overview.pdf)
